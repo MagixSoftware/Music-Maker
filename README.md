@@ -29,4 +29,3 @@
 * New: VST Bridge Orange Vocoder ME LIMITED-TIME BONUS: SOUND FORGE Audio Studio 12
 
 Read more: https://www.magix.com/int/music/music-maker/
-Follow us: Facebook
