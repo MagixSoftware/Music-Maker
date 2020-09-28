@@ -1,5 +1,4 @@
 # **Music-Maker Full versions**
-# Luminar4 Full Versions
 -------------
 ![alt-текст](https://i.imgur.com/k2Y4KJv.jpg)
 # Closed version for promoters.
